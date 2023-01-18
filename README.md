@@ -1,4 +1,4 @@
-![Uploading Lofi Music Chill Night Studying Garden.gif…]()
+![Lofi Rooftop Study Night Chill](https://user-images.githubusercontent.com/106868860/213110149-6c1dead7-f6b2-4b5d-b9c2-97d277cc1863.gif)
 
 <h1 align="center">Hi 👋, I'm Suad</h1>
 <h3 align="center">A Data Analyst</h3>
