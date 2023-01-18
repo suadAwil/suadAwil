@@ -1,4 +1,4 @@
-[https://camo.githubusercontent.com/405ec87f325f46fb3b98dff86e47a3122360532127d9ea40aa9d78ce107b9d6a/68747470733a2f2f692e696d6775722e636f6d2f4c65756836776d2e676966](https://gifdb.com/gif/lofi-music-chill-night-studying-garden-lxde4silrpwounpz.html)
+https://gifdb.com/gif/lofi-music-chill-night-studying-garden-lxde4silrpwounpz.html
 <h1 align="center">Hi 👋, I'm Suad</h1>
 <h3 align="center">A Data Analyst</h3>
 
